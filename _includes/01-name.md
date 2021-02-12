@@ -1,1 +1,2 @@
-### Welcome to my blog!
+## Welcome to my blog!
+### My blog's name is Fourty-Two. For this enigmatic number, I strive to find the fundamental question of which it is an answer. Join me as I explore all the different facets of life, the universe and everything in my endeavour. Let's hope to find the ultimate question but I anticipate more towards a state of serendipity through the process. Whoever, wherever, whenever(?) and however you are, "Don't panic!", your towel is right beside you! For the adventures to come and for the new beginnings, "May The Force Be With You!"
